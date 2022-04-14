@@ -1,0 +1,2 @@
+# leirasbazis
+ OKJ Záródolgozat
